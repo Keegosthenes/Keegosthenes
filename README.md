@@ -2,7 +2,7 @@
 
 ### Développeur web full-stack junior
 
-📍 Suresnes (92150), France &nbsp;·&nbsp; ✉️ [keegosthenes@gmail.com](mailto:keegosthenes@gmail.com)  &nbsp;·&nbsp; 💼 [LinkedIn](https://www.linkedin.com/)
+📍 Suresnes (92150), France &nbsp;·&nbsp; ✉️ [keegosthenes@gmail.com](mailto:keegosthenes@gmail.com)
 
 ---
 
